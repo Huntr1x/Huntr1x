@@ -6,3 +6,7 @@
 ![alt text](https://litter.catbox.moe/n0dkdux1ollkawl7.gif) ʳᵉᵃᵈ ˢᵗʳᵃʷ ᵇᵉᶠᵒʳᵉ ᶦⁿᵗ ^-^ 
 
 ㅤㅤㅤㅤㅤㅤ𓏵  [#straw](https://litter.catbox.moe/n0dkdux1ollkawl7.gif) ![alt text](https://litter.catbox.moe/e7djy0nbxmhuclx1.gif)
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤᴵᵐ ᵗʰᵉ ˢᴵᴺ ʸᵒᵘ ʷᵃⁿⁿᵃ ʷᵉᵃᵗ
+![alt text](https://litter.catbox.moe/vr1fupj1zwic1z79.png) 
