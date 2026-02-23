@@ -9,7 +9,7 @@
 
 ![alt text](https://litter.catbox.moe/n0dkdux1ollkawl7.gif) ʳᵉᵃᵈ ˢᵗʳᵃʷ ᵇᵉᶠᵒʳᵉ ᶦⁿᵗ ^-^ 
 
-ㅤㅤㅤㅤㅤㅤ𓏵  [#straw](https://litter.catbox.moe/n0dkdux1ollkawl7.gif) ![alt text](https://litter.catbox.moe/e7djy0nbxmhuclx1.gif)
+ㅤㅤㅤㅤㅤㅤ𓏵  [#straw](https://katsukikatsuki.straw.page/) ![alt text](https://katsukikatsuki.straw.page/)
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ''ᴵᵐ ᵗʰᵉ ˢᴵᴺ ʸᵒᵘ ʷᵃⁿⁿᵃ ʷᵉᵃʳ,, 
